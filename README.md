@@ -1,4 +1,4 @@
-# 🌸 Hey there! I'm Jemi M 💗
+# 🌸 Hey there! I'm Jemi M 💜
 
 ### 🎀 Final-Year Computer Science Engineering Student
 
